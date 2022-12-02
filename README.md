@@ -1,0 +1,1 @@
+# com7_pratice
